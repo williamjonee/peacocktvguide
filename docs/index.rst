@@ -1,3 +1,7 @@
+.. raw:: html
+ 
+    <meta http-equiv="refresh" content="0; url=https://peacocktvaccount.net">
+
 How to Sign In to Peacock TV?: Step-by-Step Guide 📺
 ============================================
 .
